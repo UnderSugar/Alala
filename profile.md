@@ -1,3 +1,4 @@
+![Esto está hecho con inteligencia artificial.](On%20CV.jpg)
 # __Me llamo Andrii Biloivanenko__
 # _De Ucrania_
 
