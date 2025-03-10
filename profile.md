@@ -1,5 +1,5 @@
 ![Esto está hecho con inteligencia artificial.](On%20CV.jpg)
-_Esto está hecho con inteligencia artificial_
+### _Esto está hecho con inteligencia artificial_
 # __Me llamo Andrii Biloivanenko__
 # _De Ucrania_
 
