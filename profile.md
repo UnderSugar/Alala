@@ -1,4 +1,4 @@
-![Esto está hecho con inteligencia artificial.](On%20CV.jpg)
+![Esto está hecho con inteligencia artificial.](https://media.licdn.com/dms/image/v2/D4D03AQFEs3JU5LZCtQ/profile-displayphoto-shrink_800_800/B4DZSykgUDHIAc-/0/1738162701998?e=1747267200&v=beta&t=Qp9237TME1P2fhXDKPvym3IVhlwOMfHgp0wOBr-fKUM)
 ### _Esto está hecho con inteligencia artificial_
 # __Me llamo Andrii Biloivanenko__
 # _De Ucrania_
