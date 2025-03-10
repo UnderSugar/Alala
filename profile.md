@@ -1,3 +1,3 @@
 ## YO 
-** Soy Andrii Biloivanenko
-* De Ucrania 
+__Soy Andrii Biloivanenko__
+_De Ucrania_
